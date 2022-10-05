@@ -2,6 +2,6 @@ I am Luke McCoy also known as MoTuTein(my online username) and I love programmin
 My Website is still a work in progress but when it is launched (VERY SOON) it will have all my information, contact info, and creations on it!
 
 
-	( ˘ ³˘)ノ°ﾟº❍｡	<br>
-  ( ˘ ³˘)ノ°ﾟº❍｡	<br>
-  ( ˘ ³˘)ノ°ﾟº❍｡
+( ˘ ³˘)ノ°ﾟº❍｡	<br>
+( ˘ ³˘)ノ°ﾟº❍｡	<br>
+( ˘ ³˘)ノ°ﾟº❍｡
